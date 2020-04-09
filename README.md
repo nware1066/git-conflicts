@@ -1,4 +1,4 @@
-There was an old woman who lived in a shoe.  
-She had so many children, she didn’t know what to do;  
-She gave them some broth without any bread;  
-Then whipped them all soundly and put them to bed.  
+There was an young woman who lived out in space.  
+She had so much free time, she didn’t know what to do;  
+She created some imaginary friends, without names;  
+Then she couldn't keep them apart.  
