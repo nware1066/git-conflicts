@@ -1,4 +1,4 @@
-There was an old woman who lived in a shoe.  
-She had so many children, she didn’t know what to do;  
-She gave them some broth without any bread;  
-Then whipped them all soundly and put them to bed.  
+There was an overworked teacher, who lived in a city.  
+She had so many children, they were driving her crazy;  
+She gave them extra math homework, without teaching the lesson;  
+Then went home and took a nap.  
